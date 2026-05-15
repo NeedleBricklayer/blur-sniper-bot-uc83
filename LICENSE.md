@@ -1,4 +1,4 @@
-# 
+# Enhance your NFT trading with advanced blur sniper bot | wash-trading-detection + collection-scanning, the #1 blur sniper bot. Includes wash-trading-detection and
 
 
 
